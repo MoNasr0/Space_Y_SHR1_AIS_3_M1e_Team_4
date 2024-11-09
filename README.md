@@ -5,7 +5,7 @@
 
 # Presentation [Here](https://docs.google.com/presentation/d/1C8vC4qfpF3DDGYJA-8Qspg1Huzy2HOf7/edit?usp=sharing&ouid=118173507882679184021&rtpof=true&sd=true)
 
-# Video ( 5 minutes) [Here](https://drive.google.com/file/d/1yMjZlukjdO_JM21VarYYDDbCcdfHk1WH/view?usp=sharing) 
+# Video ( 5 minutes) [Here](h[ttps://drive.google.com/file/d/1yMjZlukjdO_JM21VarYYDDbCcdfHk1WH/view?usp=sharing](https://www.canva.com/design/DAGT3fqmT_U/9z0tB9U6eAvd06JimIXamw/edit?utm_content=DAGT3fqmT_U&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)) 
 ### Contributors
 - Mohammed Waseem
 - Mohmoud Ashraf
