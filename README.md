@@ -10,6 +10,6 @@
 - Mohammed Waseem
 - Mohmoud Ashraf
 - Hossam El sherbeny
-- Mohammed El-Sayed
+- Mohammed Nasr
 - Shokri Mohammed Shokri
 - Ibrahim Ali
